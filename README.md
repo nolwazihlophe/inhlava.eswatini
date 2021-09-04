@@ -1,0 +1,1 @@
+# inhlava.eswatini
